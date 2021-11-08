@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @M-Celina
+- 👀 Estou em busca de Dev's para fazerem parte da Contabilizei, para a desburocratização e revolução financeira♥
+- 📫 Fale comigo se tiver interesse em embarcar no time da Contabilizei! 
